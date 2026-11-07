@@ -1,1 +1,0 @@
-# nomodelbarberia-demo
